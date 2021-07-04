@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KingBasara8
-- 👀 I’m interested in  Robotics and Coding
+- 👀 I’m interested in  Game Developement and Coding
 - 🌱 I’m currently undecided
 - 💞️ I’m looking to collaborate on projects that help me develop my own tech company
 - 📫 How to reach me Insta:savagebb19 discord:BASARA [Basheer]#0289
